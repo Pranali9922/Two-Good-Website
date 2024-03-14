@@ -1,4 +1,4 @@
-### Twogood Website
+### Two Good Website
 
 🌟 Welcome to the Twogood website, where style meets innovation! 🌟
 
